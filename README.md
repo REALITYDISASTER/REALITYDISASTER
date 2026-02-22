@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/mjvjks.png" width="520"/>
+<img src="https://files.catbox.moe/g1y335.png" width="520"/>
 
 <pre><b>
 name hoshie
