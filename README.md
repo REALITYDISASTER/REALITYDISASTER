@@ -1,18 +1,5 @@
-<div align="center">
-
-<img src="https://files.catbox.moe/g1y335.png" width="520"/>
-
-<pre><b>
-name hoshie
-7teen   he / him sp259 felv eii not lonely not broken not taken
-</b></pre>
-
-━━━━━━━━━━━━━━━━━━━━
-
-<pre><b>
-interact me in pt or other games & social links btw i'm not often in afk and am open to communication
-shuake lover
-telegram @crowakechi tiktok .thyylmz
-</b></pre>
-
-</div>
+<p align="center">
+  <img src="https://i5.walmartimages.com/asr/657ff4ba-4bab-48f8-8fd1-eb8e320dc1c4.7b6f6e3147a2924a63e023348b3d293f.jpeg?odnHeight=2000&odnWidth=2000&odnBg=FFFFFF" width="320">
+<p align="center">
+he / him sp259 fevl
+</p>
